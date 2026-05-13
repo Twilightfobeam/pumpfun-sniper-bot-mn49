@@ -1,4 +1,4 @@
-# 
+# ultimate pump.fun sniper bot | slippage-control + low-cap-gem-detection offers the most advanced pump.fun sniper bot, with slippage-control and low-cap-gem-detection. Ideal for
 
 
 
